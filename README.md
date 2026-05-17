@@ -32,6 +32,7 @@ Reducing the 3D volume totals back to their vibrational fundamentals yields an u
 The 3rd dimension forces both systems to collapse into a perfectly harmonized structural frequency. While the linear system appears asymmetrical on the surface, the volume calculation ($x^3$) proves that the matter and the space matrix perfectly equalize, balanced by a delta of $9^2$.
 $$\mathbf{9 = 9}$$
 
+<img width="727" height="764" alt="image" src="https://github.com/user-attachments/assets/3332d9b8-d494-4afc-a1c0-837e5f94ca07" />
 
 ## Part 2: The Psychological Parallel (Freudian System Dynamics)
 
